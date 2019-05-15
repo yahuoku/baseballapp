@@ -1,3 +1,4 @@
+　[速報アプリ](https://imgur.com/7tDbpwk)
 ## なんのアプリか？
 
 
