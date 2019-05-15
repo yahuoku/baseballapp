@@ -1,5 +1,5 @@
 
- [速報アプリ](https://imgur.com/7tDbpwk.jpg "title")
+ [速報の画像はこちら](https://imgur.com/7tDbpwk.jpg "速報アプリ")
 ## なんのアプリか？
 
 
