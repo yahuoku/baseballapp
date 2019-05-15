@@ -1,4 +1,4 @@
-　[速報アプリ](https://imgur.com/7tDbpwk)
+　[速報アプリno](https://imgur.com/7tDbpwk.jpg)
 ## なんのアプリか？
 
 
